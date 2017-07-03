@@ -2,4 +2,4 @@
 Tuition purpose
 
 Kolohovnorovno11
-KOlojederovno rovnopřesto hovno
+KOlojederovno rovnopřesto 
